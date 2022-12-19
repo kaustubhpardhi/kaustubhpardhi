@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kaustubhpardhi006@gmail.com**
 
-- ⚡ Fun fact **i nerd out on football**
+- ⚡ Fun fact ** i nerd out on football**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
